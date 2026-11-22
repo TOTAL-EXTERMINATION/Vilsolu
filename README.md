@@ -12,7 +12,7 @@
 <p align=center> <a href=https://www.tumblr.com/pxrcelain/833142103080140800/%CA%9A-%E3%86%8D-dreamy-dividers-like-reblog-join> <img width="1280" height="142" alt="tumblr_8fd6421826ecb31cbde5e4fec791b222_6e6f50c9_1280" src="https://github.com/user-attachments/assets/c125362d-32af-4bb8-af8b-5c93e72d89f8" /></a> </p>
 
 
-**<p align=center>All assets will have sources linked! (๑>◡<๑) [Eyestrain + Lag warning for some favicons/pixel sources though] </p>**
+**<p align=center>All assets will have sources linked! (๑>◡<๑) [Eyestrain + Lag warning for some favicon/pixel sources though] </p>**
 
 
 <h1 align=center> <a href=https://www.tumblr.com/cheriisoda/793442357869690880/dogpuppy-themed-stuff-maybe-seals-will-be-next> <img width="24" height="24" alt="tumblr_24e0c90c0bc22a3de5619fe0915eb0a9_a42c997b_75" src="https://github.com/user-attachments/assets/9cfbf965-45bc-4ff0-95c0-850ae3864f2b" /></a>
