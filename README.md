@@ -107,7 +107,7 @@ I won't add you as a friend unless we've hung out a lot, roleplayed for a while,
 
 <details>
 
-<summary> Obligatory Blinkie/Web stamp Section [LAG WARNING JUST IN CASE] ⊂((・▽・))⊃ CLICK! </summary>
+<summary> Obligatory Web stamp/Blinkie Section [LAG WARNING JUST IN CASE] ⊂((・▽・))⊃ CLICK! </summary>
 
 
 <p align=center>
