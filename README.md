@@ -99,7 +99,7 @@ Ships regarding skins can interact, just don't be weird about it
 Lovee to roleplay, responses will be slow though, apologies.. I sometimes talk really fancy so tell me if I should tone it down（ ノ **_<。**)
 
 <a href=https://rentry.co/HorrerePurple> <img width="20" height="20" alt="9efc8b3c" src="https://github.com/user-attachments/assets/6ceb1b1d-c8be-490b-b853-28c493855793" /></a>
-I won't add you as a friend unless we've hung out a lot or I know you on other platforms
+I won't add you as a friend unless we've hung out a lot, roleplayed for a while, or I know you on other platforms
 
 
 <p align=center> <a href=https://www.tumblr.com/pxrcelain/833233518453817344/%CA%9A-%E3%86%8D-watercolor-dividers-like-reblog> <img width="1280" height="142" alt="tumblr_e05c3e468651cc050ec33aa733826136_cf545d35_1280" src="https://github.com/user-attachments/assets/e345550c-c6d2-413a-9a75-1fc376b85deb" /></a> </p>
