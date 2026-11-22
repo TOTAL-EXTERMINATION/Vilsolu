@@ -1,7 +1,7 @@
 
 **<p align=center>
 <a href=https://x.com/_fineena/status/1980174421202710705> OG Art</a>
-<img width="400" height="400" alt="New board" src="https://github.com/user-attachments/assets/cb6b720d-7102-4b03-b51d-3eff4b783cce" />
+<img width="400" height="400" alt="New board" src="https://github.com/user-attachments/assets/47e78683-fc92-4493-9cd9-8c2b1d44b7ab" />
 <a href=https://pin.it/2eY2oA2Dv> Profile Mask</a> </p>**
 
 
