@@ -1,9 +1,8 @@
 
-<p align=center>
+**<p align=center>
 <a href=https://x.com/_fineena/status/1980174421202710705> OG Art</a>
 <img width="400" height="400" alt="New board" src="https://github.com/user-attachments/assets/cb6b720d-7102-4b03-b51d-3eff4b783cce" />
-<a href=https://pin.it/2eY2oA2Dv> Profile Mask</a>
-</p>
+<a href=https://pin.it/2eY2oA2Dv> Profile Mask</a> </p>**
 
 
 <h1 align=center> <a href=https://www.fontspace.com/quilt-patches-font-f77375> <img width="1244" height="53" alt="image" src="https://github.com/user-attachments/assets/af761d49-6358-425d-b7d9-f5d5ab79e99a" /></a> </h1>
