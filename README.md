@@ -184,3 +184,6 @@ I won't add you as a friend unless we've hung out a lot, roleplayed for a while,
 
 
 **<p align=center> Thanks for visiting! </p>**
+
+<img width="61" height="60" alt="Screenshot 2026-11-22 at 8 19 16 PM" src="https://github.com/user-attachments/assets/a7243710-70f5-400c-ba11-9af73b78daf3" />
+
